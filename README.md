@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DrigglyEast
+- 👀 I’m interested in gaming, architecture, and sustainability
+- 🌱 I’m currently learning html and css
+- 💞️ I’m looking to collaborate on nothing at the moment
+- 📫 How to reach me email @ drigglyeast@gmail.com
